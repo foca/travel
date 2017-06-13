@@ -8,7 +8,7 @@
 
 * [Carvoaria Jacto][carvoaria]
 
-  Steak. The dry aged steak was fenomenal. Also their appetizer tray has some
+  Steak. The dry aged steak was phenomenal. Also their appetizer tray has some
   good options.
 
 * [Bairro do Avillez][bairro-avillez]
